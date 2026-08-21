@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+* Grivin, [Linkedin](https://www.linkedin.com/in/grivin-w-1215a22b0?utm_source=share_via&utm_content=profile&utm_medium=member_android).
